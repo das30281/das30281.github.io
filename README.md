@@ -1,1 +1,7 @@
-# das30281.github.io
+# Avery Profile
+
+## Current Position
+2023/09 THU GMBA
+
+## Education
+THU IB 
